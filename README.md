@@ -1,0 +1,1 @@
+# Lista_de_Compras_com_Checklists_Requisitos
